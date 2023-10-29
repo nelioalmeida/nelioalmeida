@@ -1,4 +1,4 @@
-### Eu soo o Nélio Almeida
+### Me chamo Nélio Almeida
 
 - 🌱 I’m currently learning cyber security
 
